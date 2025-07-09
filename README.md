@@ -1,1 +1,1 @@
-professional programmer
+enterprising computer
